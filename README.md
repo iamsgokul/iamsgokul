@@ -4,6 +4,6 @@
 
 👨‍💻 I Start my Career in 2013 after completing my Degree as a Product Designer at Cavintek Inc. I have work 4 years in the Cavintek. 2017 Oct I switch over Zoho Corp as a Visual Designer currently work there.I have knowledge of both Designing Tools and Coding.
 
-🖌️ With close to 5 years of experience as a Designer and Developer, my role is to build scalable and user friendly applications.
+🖌️ With close to 9 years of experience as a Designer and Developer, my role is to build scalable and user friendly applications.
 
-Create 500+ Icon available on iconshopping.blogspot.com. And write 500+ blog post about internet latest technology on tricksschool.com.
+Create 500+ Icon available on geeksicon.blogspot.com. And write 500+ blog post about internet latest technology on www.geekgokul.com.
